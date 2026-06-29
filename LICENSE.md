@@ -1,4 +1,4 @@
-# 
+# Mejor 7-Zip scripts para Mac OS | Exclusivo 7-Zip scripts para PC Windows. Con automatización del sistema y optimizador de servicios — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
